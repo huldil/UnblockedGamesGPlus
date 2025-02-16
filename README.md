@@ -38,6 +38,6 @@ Disclaimer
 
 https://UnblockedGamesGPlus.com does not host or distribute any copyrighted material. All games are provided by third-party sources, and we do not claim ownership over any game content.
 
-Start playing now at https://UnblockedGamesGPlus.com and enjoy endless entertainment!
+Start playing now at www.UnblockedGamesGPlus.com and enjoy endless entertainment!
 
 
