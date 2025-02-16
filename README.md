@@ -2,7 +2,7 @@
 
 About
 
-Welcome to UnblockedGamesGPlus.com, your ultimate destination for playing free unblocked games anytime, anywhere. Whether you're at school, work, or on a restricted network, our site ensures seamless access to a vast collection of online games without any restrictions. Enjoy action, adventure, puzzle, and multiplayer games directly from your browser with no downloads required.
+Welcome to https://UnblockedGamesGPlus.com, your ultimate destination for playing free unblocked games anytime, anywhere. Whether you're at school, work, or on a restricted network, our site ensures seamless access to a vast collection of online games without any restrictions. Enjoy action, adventure, puzzle, and multiplayer games directly from your browser with no downloads required.
 
 Features
 
