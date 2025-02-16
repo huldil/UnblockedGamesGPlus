@@ -1,5 +1,4 @@
 # UnblockedGamesGPlus
-UnblockedGamesGPlus.com
 
 About
 
